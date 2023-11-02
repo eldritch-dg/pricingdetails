@@ -4,7 +4,7 @@ Welcome im glad you decided to pop in!
 I'm a 19 year old trans girl, I'm Pre-op and I'm on hormones and have been for about 3 months
 I'm in the 18+ Content Creation "industry" to make some extra dosh!
 So if you want some things be sure to send inquiries!
-Dm me on instagram for actual pricing details
+Dm me on discord for actual pricing details!!!
 @eldritch_dg
 
 ### Character Specs:
